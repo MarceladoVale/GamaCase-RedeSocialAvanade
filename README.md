@@ -1,0 +1,1 @@
+# GamaCase-RedeSocialAvanade
